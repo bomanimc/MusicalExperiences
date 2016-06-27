@@ -32,3 +32,7 @@
 - Jay Electronica w/ The Boy Illinois and Prez Harris (Chicago)
 - Pig Destroyer w/ Call of the Void and La Armada (Chicago)
 - Magrudergrind w/ Yautja, Sick/Tired, and Stay Asleep (Chicago)
+- Anderson .Paak, Dial Up, Smino, Mister Wallace at Dillo Day (Chicago)
+
+###Summer 2016
+- Craig Xen, War of Icaza, Demagogue, Death Amphetamine (Bay Area)
