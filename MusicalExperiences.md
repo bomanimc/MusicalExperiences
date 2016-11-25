@@ -1,3 +1,50 @@
+###Spring 2011 (Nashville)
+- Zeitgeist 2011: Joseph Mooradian, Fox Fun, What Up English, and more @ USN
+
+###Summer 2011 (Nasvhille)
+- Toro Y Moi @ The End
+- Bad Sports, Wax Museums, Cy Barley & The Way Outsiders, Canonmen @ Glenn Danzigs House
+
+###Winter 2011
+- Gnarwhal, Nameless Cults @ Hymen House
+- Dawn, Yautja, No Christmas, Fenris, Intoxicated Male @ Hymen House
+
+###Spring 2012
+- Demeanor, City of Ifa, An Isle Ate Her @ Cafe Coco
+- Yautja, Thetan, Nut Collector, Catheter, Laughing Dog @ Cafe Coco
+- Alter of Complaints, Intoxicated Male, Jowls @ Hymen House
+
+###Summer 2012
+- Torch Runner, Bacchus, No Christmas, Nut Collector, Altar of Complaints @ Hymen House
+- Cough, Dragged Into the Sunlight, Laser Flames on the Great Big News @ The End
+- Choking On Ash, Nameless Cults, Haldol, Intoxicated Male, Shaved Women @ Hymen House
+- Syrian Nukes, Slugz, Canonmen, Fucked Ehtos @ The Other Basement
+- Mouth of the Architect, Yautja, No Christmas, Hellbender @ Cafe Coco
+- Yautja, How Cozy, Fenris, Chud, Peter J Woods, Lucky Bone @ Hymen House
+
+###Fall 2012
+- Manatees, Leather Nightmare, OGG< Psychic Hotline @ The End
+- Caroline Cronin, Michael Cheng, Fable Cry, Onri, Stripes @ Rocketown
+- Inter Arma, Yautja, Choking On Ash, Hellbender @ The Owl Farm
+
+###Summer 2013
+- Intronaut, Yautja, Scale The Summit, Mouth of the Architect @ The End
+- Zero Boys, Slammers, Canonmen, Fucked Ehtos @ The Owl Farm
+- Evan Brewer, Last Chance To Reason, Alaya @ The End
+
+###Winter 2013:
+- Native America, Fox Fun, Dogtooth @ The Stone Fox
+- Diarrhea Planet, The Protomen, Richie, No Regrets Coyote (New Years) @ Exit/In
+- Sunseeker, Study Hall @ The East Room
+
+###Fall 2014
+- Despise You, Creator|Destroyer, Sick/Tired, Sea of Shit, Lifes, xAbruptx @ Township
+
+###Winter 2014
+- Beyond Pleasuredome: Baron Von Birk, Grey People, James Cathcart, Oliver Dodd @ Betty's Grill
+- Nubians, Sallow, Slanted, Gnarwhal, Chainshot, EQUALITYISFALSEGOD @ The Elberta House
+- Sallow, Pile, Chainshot, EQUALITYISFALSEGOD @ Hymen House
+
 ###Summer 2015
 - HD, Chapman, Juketastrophe and others (NYC)
 - Afropunk BOTB: Oshun, ISO Indies, Negros Americanos, and others (NYC)
