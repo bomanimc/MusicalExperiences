@@ -83,3 +83,8 @@
 
 ###Summer 2016
 - Craig Xen, War of Icaza, Demagogue, Death Amphetamine (Bay Area)
+- Lysine, Tunic, Bad Monroe, Lord Tang @ Sgraffito
+- Afropunk Festival 2016: Bad Brains, Fishbone, The Internet, Trash Talk, Tyler The Creator, and more.
+
+###Fall 2016
+- Ho99o9, The Shrine, Dinosaurus @ The Independent 
