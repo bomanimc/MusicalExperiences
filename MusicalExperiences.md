@@ -1,20 +1,28 @@
+###Summer 2010 (Nashville)
+- Pentagram, Black Tusk @ The End
+
 ###Spring 2011 (Nashville)
+- Animals As Leaders @ The Muse
 - Zeitgeist 2011: Joseph Mooradian, Fox Fun, What Up English, and more @ USN
 
 ###Summer 2011 (Nasvhille)
 - Toro Y Moi @ The End
 - Bad Sports, Wax Museums, Cy Barley & The Way Outsiders, Canonmen @ Glenn Danzigs House
 
-###Winter 2011
+##Fall 2011 (Nashville)
+- Earth, Mt.Eerie @ The End
+
+###Winter 2011 (Nashville)
 - Gnarwhal, Nameless Cults @ Hymen House
 - Dawn, Yautja, No Christmas, Fenris, Intoxicated Male @ Hymen House
 
-###Spring 2012
+###Spring 2012 (Nashville)
 - Demeanor, City of Ifa, An Isle Ate Her @ Cafe Coco
 - Yautja, Thetan, Nut Collector, Catheter, Laughing Dog @ Cafe Coco
 - Alter of Complaints, Intoxicated Male, Jowls @ Hymen House
+- Baroness, Royal Thunder @ The End
 
-###Summer 2012
+###Summer 2012 (Nashville)
 - Torch Runner, Bacchus, No Christmas, Nut Collector, Altar of Complaints @ Hymen House
 - Cough, Dragged Into the Sunlight, Laser Flames on the Great Big News @ The End
 - Choking On Ash, Nameless Cults, Haldol, Intoxicated Male, Shaved Women @ Hymen House
@@ -22,17 +30,18 @@
 - Mouth of the Architect, Yautja, No Christmas, Hellbender @ Cafe Coco
 - Yautja, How Cozy, Fenris, Chud, Peter J Woods, Lucky Bone @ Hymen House
 
-###Fall 2012
-- Manatees, Leather Nightmare, OGG< Psychic Hotline @ The End
+###Fall 2012 (Nashville)
+- Manatees, Leather Nightmare, OGG, Psychic Hotline @ The End
 - Caroline Cronin, Michael Cheng, Fable Cry, Onri, Stripes @ Rocketown
 - Inter Arma, Yautja, Choking On Ash, Hellbender @ The Owl Farm
 
-###Summer 2013
+###Summer 2013 (Nashville)
 - Intronaut, Yautja, Scale The Summit, Mouth of the Architect @ The End
 - Zero Boys, Slammers, Canonmen, Fucked Ehtos @ The Owl Farm
 - Evan Brewer, Last Chance To Reason, Alaya @ The End
+- Cove, Demeanor, Integrity, Gehenna, Full of Hell @ The End
 
-###Winter 2013:
+###Winter 2013
 - Native America, Fox Fun, Dogtooth @ The Stone Fox
 - Diarrhea Planet, The Protomen, Richie, No Regrets Coyote (New Years) @ Exit/In
 - Sunseeker, Study Hall @ The East Room
