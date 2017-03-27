@@ -92,8 +92,18 @@
 
 #### Summer 2016
 - Craig Xen, War of Icaza, Demagogue, Death Amphetamine (Bay Area)
-- Lysine, Tunic, Bad Monroe, Lord Tang @ Sgraffito
-- Afropunk Festival 2016: Bad Brains, Fishbone, The Internet, Trash Talk, Tyler The Creator, and more.
+- Lysine, Tunic, Bad Monroe, Lord Tang @ Sgraffito (Bay Area)
+- Afropunk Festival 2016: Bad Brains, Fishbone, The Internet, Trash Talk, Tyler The Creator, and more. (NYC)
 
 #### Fall 2016
 - Ho99o9, The Shrine, Dinosaurus @ The Independent 
+
+#### Winter 2017
+- Sampha, Mal Devisa @ Metro (Chicago)
+- VAM's Wrndrlnd @ The Dojo (Chicago)
+- Cakes Da Killa, Mykki Blanco @ Bottom Lounge (Chicago)
+- Little Simz, CJ Fly, Lili K Band, Prez Harris @ Reggie's (Chicago)
+- Boiler Room: The Remedy w/ Quiana Parks, DJ Wavy, Powers Pleasant, and DJ Esco
+- Rave Cave w/ Erol Sabadosh @ Tilt (NYC)
+- GHE20GOTH1K w/ Scraatch, Ace Mo, Paul Marmota, and Venus X @ Brookly Bazaar (NYC)
+
