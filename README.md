@@ -107,3 +107,7 @@
 - Rave Cave w/ Erol Sabadosh @ Tilt (NYC)
 - GHE20GOTH1K w/ Scraatch, Ace Mo, Paul Marmota, and Venus X @ Brookly Bazaar (NYC)
 
+#### Spring 2017
+- Inside Multimedia Experience w/ Jacob Bjorge, Fee Lion @ Debonair Social Club
+- The Plug w/ SoLo the Dweeb, $Sound Posse, Huey Gang, Vice Versa @ The Dojo
+- Aye Neko, Ganser, Cabrona @ Beat Kitchen 
