@@ -111,3 +111,5 @@
 - Inside Multimedia Experience w/ Jacob Bjorge, Fee Lion @ Debonair Social Club
 - The Plug w/ SoLo the Dweeb, $Sound Posse, Huey Gang, Vice Versa @ The Dojo
 - Aye Neko, Ganser, Cabrona @ Beat Kitchen 
+- MikeQ, DRAM, Downtown Boys, Little Simz @ Dillo Day 
+- Ho99o9, Injury Reserve @ Beat Kitchen
