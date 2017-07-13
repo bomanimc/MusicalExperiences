@@ -35,6 +35,9 @@
 - Caroline Cronin, Michael Cheng, Fable Cry, Onri, Stripes @ Rocketown
 - Inter Arma, Yautja, Choking On Ash, Hellbender @ The Owl Farm
 
+#### Spring 2013
+- Lianna La Havas w/ Jamie N Commons @ 3rd & Lindsley
+
 #### Summer 2013 (Nashville)
 - Intronaut, Yautja, Scale The Summit, Mouth of the Architect @ The End
 - Zero Boys, Slammers, Canonmen, Fucked Ehtos @ The Owl Farm
