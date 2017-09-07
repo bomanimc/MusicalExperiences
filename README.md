@@ -116,3 +116,12 @@
 - Aye Neko, Ganser, Cabrona @ Beat Kitchen 
 - MikeQ, DRAM, Downtown Boys, Little Simz @ Dillo Day 
 - Ho99o9, Injury Reserve @ Beat Kitchen
+
+#### Summer 2017
+- Herrensauna @ Tresor (Berlin)
+- Open-Air #9 w/ Atjazz and Black Loops @Ipse (Berlin)
+- BEATS, BASS, & BBQ w/ Kewu, Theya & SBSTRD, Dreen Tran's & Dj Tuco, Blazing Bullets, and DVDJ NNS & Aid Kid @ NEONE (Prague)
+- Afropunk Brookly 2017 w/ Ho99o9, Solange, SZA, Willow Smith, Anderson Paak, Dizzee Rascal, Princess Nokia, BROCKHAMPTON, Kaytranada, Juliana Huxtable, and LSDXOXO @ Commodore Barry Park
+- Afropunk After Dark w/ Little Simz ft. Miguel & Sampha (DJ Set)
+- Pyrrhon @ Saint Vitus Bar
+
